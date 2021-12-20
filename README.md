@@ -1,6 +1,6 @@
-👋 Hi, I’m @shakthianalyst1412
-📫 How to reach me on Instagram @hemanshakthi
-🤖 Love everything about Technology
+👋 Hi, I’m @shakthianalyst1412 /n
+📫 How to reach me on Instagram @hemanshakthi /n
+🤖 Love everything about Technology /n
 ⚙  Technology facinates me more than humans
 
 <!---
